@@ -11,7 +11,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/drive/folders/1m92VAa2jeMXzeXILeWYsWm5eRPNJsckL?usp=sharing](https://drive.google.com/drive/folders/1m92VAa2jeMXzeXILeWYsWm5eRPNJsckL?usp=sharing)
 
-- ⚡ Fun fact [I ❤ 🍻](I ❤ 🍻)
+- ⚡ Fun fact I ❤ 🍻
 
 - 🎓 **Holding MBA degree**
 
